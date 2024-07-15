@@ -1,0 +1,1 @@
+# ScreenToGif-2.45.0-Crack
